@@ -1,1 +1,1 @@
-# documents
+# Fullperm text for Secondlife
