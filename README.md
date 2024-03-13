@@ -1,3 +1,3 @@
 # Fullperm ebooks for Secondlife
 
-https://www.gutenberg.org
+https://www.gutenberg.org/ebooks/
